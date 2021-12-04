@@ -6,4 +6,3 @@
 - 👯 I’m looking to collaborate on anything as long as i keep learning stuff !
 - 🤔 I’m looking for help with EVERYTHING.
 - 📫 How to reach me: *Bat Signal*
-- ⚡ Fun fact: In French hedgehog's babies are called "choupisson" and that sounds as cute as they look like !
